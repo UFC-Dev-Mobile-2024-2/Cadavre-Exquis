@@ -1,2 +1,3 @@
 # Cadavre-Exquis
 Uma pessoa estava em Quixadá na praça do Leão então ...
+... lembrou de uma atividade atrasada, que valia nota :alarm_clock:
