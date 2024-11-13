@@ -18,3 +18,5 @@ as vacas eram malhadas
 explodiu leite para todos os lados
 e então sofreu pela morte da esposa e virou viuvo
 houve um tumulto no centro pois avistaram um serial killer
+as pessoas que estavam na rua correram para as lojas 
+
