@@ -7,6 +7,7 @@ eu acabei tropeçando em uma loja e gastei 3000 reais
 Uma pessoa estava em Quixadá na praça do Leão então ...
 A estátua criou vida
 pegou o guanabara e foi embora
+a estátua do leão ganha vida e vai para a praça da pessoa...
 ... lembrou de uma atividade atrasada, que valia nota :alarm_clock:
 ela tropeçou em um milkshake de ovomaltine e bateu a cabeça em um banco
 começou a chover e com muitos ventos
@@ -43,6 +44,8 @@ Rey aparece encima da pedra do Cruzeiro para confortar o coração de todos, dar
 e morreu de overdose
 infelizmente
 esse foi seu fim.
+Visando uma nova aventura zezé seguiu seu destino.
 esse foi seu fim.
 visando uma nova aventura zezé seguiu seu destino.
 Visando uma nova aventura zezé seguiu seu destino.
+
