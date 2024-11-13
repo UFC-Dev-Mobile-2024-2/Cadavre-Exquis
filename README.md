@@ -1,2 +1,3 @@
 # Cadavre-Exquis
 Uma pessoa estava em Quixadá na praça do Leão então ...
+foi atacada por um cachorro verde fugido do século XIX
