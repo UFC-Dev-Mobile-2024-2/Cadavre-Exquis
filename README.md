@@ -17,3 +17,4 @@ que estava carregando duas vacas
 as vacas eram malhadas
 explodiu leite para todos os lados
 e então sofreu pela morte da esposa e virou viuvo
+houve um tumulto no centro pois avistaram um serial killer
