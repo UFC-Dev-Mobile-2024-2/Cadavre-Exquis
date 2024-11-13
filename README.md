@@ -33,6 +33,7 @@ explodiu leite para todos os lados
 e morreu
 e então sofreu pela morte da esposa e virou viuvo
 como viuvo ele decidiu investir em bitcoin
+o velho deixou vários gatos orfãos
 Rey aparece encima da pedra do Cruzeiro para confortar o coração de todos, dar amor para este mundo 
 um japonês com um baseado foi atingido
 e então sofreu pela morte da esposa e virou viuvo
@@ -48,4 +49,3 @@ Visando uma nova aventura zezé seguiu seu destino.
 esse foi seu fim.
 visando uma nova aventura zezé seguiu seu destino.
 Visando uma nova aventura zezé seguiu seu destino.
-
