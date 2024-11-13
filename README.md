@@ -7,6 +7,7 @@ foi atacada por um cachorro verde fugido do século XIX
 ... lembrou de uma atividade atrasada, que valia nota :alarm_clock:
 ela tropeçou em um milkshake de ovomaltine e bateu a cabeça em um banco
 começou a chover e com muitos ventos
+Quando de repente, um dinossauro com cabeça de cavalo apareceu
 Ela correu para se proteger em uma barraca
 então ele procurou abrigo no Bahamas
 ele nem ia beber, mas tava tocando eve sandes mi corazon
@@ -22,3 +23,4 @@ e então sofreu pela morte da esposa e virou viuvo
 como viuvo ele decidiu investir em bitcoin
 e morreu
 infelizmente
+
