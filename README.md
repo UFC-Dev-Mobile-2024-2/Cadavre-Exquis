@@ -12,3 +12,4 @@ ela encontrou um pote de pedras douradas
 então apareceu um OVNI
 bateu em um idoso
 que estava carregando duas vacas
+as vacas eram malhadas
