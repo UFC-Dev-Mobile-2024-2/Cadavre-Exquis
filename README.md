@@ -23,4 +23,4 @@ e então sofreu pela morte da esposa e virou viuvo
 como viuvo ele decidiu investir em bitcoin
 e morreu
 infelizmente
-
+esse foi seu fim
