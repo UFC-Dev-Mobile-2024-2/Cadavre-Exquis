@@ -1,4 +1,6 @@
 # Cadavre-Exquis
+Uma pessoa estava em Quixadá na praça do Leão então ... 
+eu acabei tropeçando em uma loja e gastei 3000 reais
 Uma pessoa estava em Quixadá na praça do Leão então ...
 Chega um grupo de pessoas
 ELas rugiram pra um cachorro
@@ -14,4 +16,9 @@ bateu em um idoso
 que estava carregando duas vacas
 as vacas eram malhadas
 explodiu leite para todos os lados
+<<<<<<< HEAD
 e morreu
+=======
+e então sofreu pela morte da esposa e virou viuvo
+como viuvo ele decidiu investir em bitcoin
+>>>>>>> 9a0bd14938b42a8b6325bcba4bc20bef41fe915a
