@@ -1,2 +1,3 @@
 # Cadavre-Exquis
 Uma pessoa estava em Quixadá na praça do Leão então ...
+ELa rugiu pra um cachorro
