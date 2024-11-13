@@ -36,11 +36,16 @@ como viuvo ele decidiu investir em bitcoin
 Rey aparece encima da pedra do Cruzeiro para confortar o coração de todos, dar amor para este mundo 
 um japonês com um baseado foi atingido
 e então sofreu pela morte da esposa e virou viuvo
+houve um tumulto no centro pois avistaram um serial killer
+as pessoas que estavam na rua correram para as lojas 
 como viuvo ele decidiu investir em bitcoin
 ponto
 Rey aparece encima da pedra do Cruzeiro para confortar o coração de todos, dar amor para este mundo
 e morreu de overdose
 infelizmente
 esse foi seu fim.
+Visando uma nova aventura zezé seguiu seu destino.
+esse foi seu fim.
+visando uma nova aventura zezé seguiu seu destino.
 Visando uma nova aventura zezé seguiu seu destino.
 
