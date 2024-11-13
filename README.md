@@ -10,4 +10,5 @@ e ela decide dormir uma noite na serra, sentindo a brisa do mar. :sweat_drops:
 Então essa pessoa vestiu seu casaco de bolinhas amarelas
 ela encontrou um pote de pedras douradas
 então apareceu um OVNI
+bateu em um idoso
 que estava carregando duas vacas
