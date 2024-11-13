@@ -1,7 +1,6 @@
 # Cadavre-Exquis
 Uma pessoa estava em Quixadá na praça do Leão então ... 
 eu acabei tropeçando em uma loja e gastei 3000 reais
-Uma pessoa estava em Quixadá na praça do Leão então ...
 Chega um grupo de pessoas
 ELas rugiram pra um cachorro
 foi atacada por um cachorro verde fugido do século XIX
@@ -18,5 +17,7 @@ bateu em um idoso
 que estava carregando duas vacas
 as vacas eram malhadas
 explodiu leite para todos os lados
+e morreu
 e então sofreu pela morte da esposa e virou viuvo
 como viuvo ele decidiu investir em bitcoin
+
