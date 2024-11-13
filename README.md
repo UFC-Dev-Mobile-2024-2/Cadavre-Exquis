@@ -18,3 +18,4 @@ as vacas eram malhadas
 explodiu leite para todos os lados
 e então sofreu pela morte da esposa e virou viuvo
 como viuvo ele decidiu investir em bitcoin
+ponto
