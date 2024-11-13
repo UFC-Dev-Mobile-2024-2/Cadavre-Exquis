@@ -7,3 +7,4 @@ foi atacada por um cachorro verde fugido do século XIX
 ela tropeçou em um milkshake de ovomaltine e bateu a cabeça em um banco
 começou a chover e com muitos ventos
 então apareceu um OVNI
+que estava carregando duas vacas
