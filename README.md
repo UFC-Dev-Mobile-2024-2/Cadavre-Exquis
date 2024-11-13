@@ -16,9 +16,7 @@ bateu em um idoso
 que estava carregando duas vacas
 as vacas eram malhadas
 explodiu leite para todos os lados
-<<<<<<< HEAD
 e morreu
-=======
 e então sofreu pela morte da esposa e virou viuvo
 como viuvo ele decidiu investir em bitcoin
->>>>>>> 9a0bd14938b42a8b6325bcba4bc20bef41fe915a
+e criou uma empresa de leite
