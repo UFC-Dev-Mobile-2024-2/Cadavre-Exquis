@@ -11,6 +11,11 @@ a estátua do leão ganha vida e vai para a praça da pessoa...
 ... lembrou de uma atividade atrasada, que valia nota :alarm_clock:
 ela tropeçou em um milkshake de ovomaltine e bateu a cabeça em um banco
 começou a chover e com muitos ventos
+
+
+
+:alien: e ele falou hellou my frendo vim em paz
+
 as árvores da praça estavam se movimentando fortemente 
 Chega um grupo de pessoas
 ELas rugiram pra um cachorro
