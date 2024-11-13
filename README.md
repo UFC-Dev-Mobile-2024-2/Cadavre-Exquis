@@ -26,9 +26,11 @@ bateu em um idoso
 que estava carregando duas vacas
 as vacas eram malhadas
 explodiu leite para todos os lados
+um japonês com um baseado foi atingido
 e então sofreu pela morte da esposa e virou viuvo
 como viuvo ele decidiu investir em bitcoin
 Rey aparece encima da pedra do Cruzeiro para confortar o coração de todos, dar amor para este mundo
 e morreu
 infelizmente
 esse foi seu fim.
+
