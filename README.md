@@ -33,9 +33,12 @@ explodiu leite para todos os lados
 e morreu
 e então sofreu pela morte da esposa e virou viuvo
 como viuvo ele decidiu investir em bitcoin
+e criou uma empresa de leite
+o velho deixou vários gatos orfãos
 Rey aparece encima da pedra do Cruzeiro para confortar o coração de todos, dar amor para este mundo 
 um japonês com um baseado foi atingido
 e então sofreu pela morte da esposa e virou viuvo
+e morreu de desgosto
 houve um tumulto no centro pois avistaram um serial killer
 as pessoas que estavam na rua correram para as lojas 
 como viuvo ele decidiu investir em bitcoin
@@ -49,3 +52,5 @@ esse foi seu fim.
 visando uma nova aventura zezé seguiu seu destino.
 Visando uma nova aventura zezé seguiu seu destino.
 só Deus na causa
+Visando uma nova aventura zezé seguiu seu destino
+em uma moto ao pôr do sol. Também adotou um gatinho chamado Carlos
