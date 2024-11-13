@@ -47,5 +47,10 @@ Rey aparece encima da pedra do Cruzeiro para confortar o coração de todos, dar
 e morreu de overdose
 infelizmente
 esse foi seu fim.
+Visando uma nova aventura zezé seguiu seu destino.
+esse foi seu fim.
+visando uma nova aventura zezé seguiu seu destino.
+Visando uma nova aventura zezé seguiu seu destino.
+só Deus na causa
 Visando uma nova aventura zezé seguiu seu destino
 em uma moto ao pôr do sol. Também adotou um gatinho chamado Carlos
