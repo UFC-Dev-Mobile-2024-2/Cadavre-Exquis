@@ -48,4 +48,4 @@ Visando uma nova aventura zezé seguiu seu destino.
 esse foi seu fim.
 visando uma nova aventura zezé seguiu seu destino.
 Visando uma nova aventura zezé seguiu seu destino.
-
+só Deus na causa
