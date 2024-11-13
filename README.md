@@ -32,6 +32,6 @@ um japonês com um baseado foi atingido
 e então sofreu pela morte da esposa e virou viuvo
 como viuvo ele decidiu investir em bitcoin
 Rey aparece encima da pedra do Cruzeiro para confortar o coração de todos, dar amor para este mundo
-e morreu
+e morreu de overdose
 infelizmente
 esse foi seu fim.
