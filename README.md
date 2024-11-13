@@ -18,7 +18,7 @@ bateu em um idoso
 que estava carregando duas vacas
 as vacas eram malhadas
 explodiu leite para todos os lados
-e morreu
 e então sofreu pela morte da esposa e virou viuvo
 como viuvo ele decidiu investir em bitcoin
-
+e morreu
+infelizmente
