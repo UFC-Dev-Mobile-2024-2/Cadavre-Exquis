@@ -34,4 +34,3 @@ Rey aparece encima da pedra do Cruzeiro para confortar o coração de todos, dar
 e morreu de overdose
 infelizmente
 esse foi seu fim.
-
