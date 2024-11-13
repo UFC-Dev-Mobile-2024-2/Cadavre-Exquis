@@ -38,10 +38,11 @@ Rey aparece encima da pedra do Cruzeiro para confortar o coração de todos, dar
 um japonês com um baseado foi atingido
 e então sofreu pela morte da esposa e virou viuvo
 como viuvo ele decidiu investir em bitcoin
+ponto
 Rey aparece encima da pedra do Cruzeiro para confortar o coração de todos, dar amor para este mundo
 e morreu de overdose
 infelizmente
-
+esse foi seu fim.
 esse foi seu fim.
 
 
