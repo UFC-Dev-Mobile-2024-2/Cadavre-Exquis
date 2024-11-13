@@ -7,6 +7,7 @@ eu acabei tropeçando em uma loja e gastei 3000 reais
 Uma pessoa estava em Quixadá na praça do Leão então ...
 A estátua criou vida
 pegou o guanabara e foi embora
+a estátua do leão ganha vida e vai para a praça da pessoa...
 ... lembrou de uma atividade atrasada, que valia nota :alarm_clock:
 ela tropeçou em um milkshake de ovomaltine e bateu a cabeça em um banco
 começou a chover e com muitos ventos
@@ -35,6 +36,8 @@ como viuvo ele decidiu investir em bitcoin
 Rey aparece encima da pedra do Cruzeiro para confortar o coração de todos, dar amor para este mundo 
 um japonês com um baseado foi atingido
 e então sofreu pela morte da esposa e virou viuvo
+houve um tumulto no centro pois avistaram um serial killer
+as pessoas que estavam na rua correram para as lojas 
 como viuvo ele decidiu investir em bitcoin
 ponto
 Rey aparece encima da pedra do Cruzeiro para confortar o coração de todos, dar amor para este mundo
@@ -43,3 +46,4 @@ infelizmente
 esse foi seu fim.
 Visando uma nova aventura zezé seguiu seu destino
 em uma moto ao pôr do sol. Também adotou um gatinho chamado Carlos
+esse foi seu fim.
