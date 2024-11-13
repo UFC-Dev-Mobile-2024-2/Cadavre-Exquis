@@ -9,6 +9,7 @@ pegou o guanabara e foi embora
 ... lembrou de uma atividade atrasada, que valia nota :alarm_clock:
 ela tropeçou em um milkshake de ovomaltine e bateu a cabeça em um banco
 começou a chover e com muitos ventos
+as árvores da praça estavam se movimentando fortemente 
 Chega um grupo de pessoas
 ELas rugiram pra um cachorro
 foi atacada por um cachorro verde fugido do século XIX
@@ -34,4 +35,3 @@ Rey aparece encima da pedra do Cruzeiro para confortar o coração de todos, dar
 e morreu
 infelizmente
 esse foi seu fim.
-
