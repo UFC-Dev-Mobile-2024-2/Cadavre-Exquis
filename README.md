@@ -8,4 +8,4 @@ ela tropeçou em um milkshake de ovomaltine e bateu a cabeça em um banco
 começou a chover e com muitos ventos
 ela encontrou um pote de pedras douradas
 então apareceu um OVNI
-visando uma nova aventura zezé seguiu seu destino
+visando uma nova aventura zezé seguiu seu destino.
