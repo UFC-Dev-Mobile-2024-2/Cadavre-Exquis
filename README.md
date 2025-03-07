@@ -58,4 +58,5 @@ visando uma nova aventura zezé seguiu seu destino.
 Visando uma nova aventura zezé seguiu seu destino.
 só Deus na causa
 Visando uma nova aventura zezé seguiu seu destino
-em uma moto ao pôr do sol. Também adotou um gatinho chamado Carlos
+em uma moto ao pôr do sol. Também adotou um gatinho chamado Carlos, esse gato tinha 3 patas e era igmão gemeo de um colho magico chamado godofredo.
+
